@@ -1,6 +1,7 @@
-### Hi there 👋
+uhh idk how to work this . uhmm haie read my rentry plz thx >_^
 
-<!--
+<!--![tumblr_45872821c3bd1fea9143d86dccbd71f1_f8dbae4a_1280](https://github.com/wonderlandsekai/wonderlandsekai/assets/130927697/e6d96bfe-ac68-4e83-8b47-b493faca9d20)
+
 **wonderlandsekai/wonderlandsekai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
