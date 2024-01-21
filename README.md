@@ -1,4 +1,4 @@
-uhh idk how to work this . uhmm haie read my rentry plz thx >_^
+uhh idk how to work this . uhmm haie read my rentry plz thx >_^ also say smth in my guestbook yayyee 
 
 <!--![tumblr_45872821c3bd1fea9143d86dccbd71f1_f8dbae4a_1280](https://github.com/wonderlandsekai/wonderlandsekai/assets/130927697/e6d96bfe-ac68-4e83-8b47-b493faca9d20)
 
