@@ -1,6 +1,5 @@
 
 uhh idk how to work this . uhmm haie read my rentry plz thx >_^ also sign my guestbook yayyee ![](https://pixels.crd.co/assets/images/gallery22/d2d8f056.gif?v=1987e5e0)
-
-![tumblr_45872821c3bd1fea9143d86dccbd71f1_f8dbae4a_1280](https://github.com/wonderlandsekai/wonderlandsekai/assets/130927697/e6d96bfe-ac68-4e83-8b47-b493faca9d20)
+![](https://media.discordapp.net/attachments/997633815998631936/1210005517804638238/IMG_3009.webp?ex=65e8fc74&is=65d68774&hm=78d98971e9a7f9c19e0f9317de2f735c9954ddc0768308ac2cce3d30d7cd27c5&=&format=webp)
 
 
